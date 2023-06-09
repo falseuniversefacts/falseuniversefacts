@@ -1,4 +1,4 @@
-Fuck HoYoverse,<br/> coming straight out the underground
+Fuck HoYoverse, coming straight out the underground
 A young leaker got it bad 'cause I'm down,<br/>
 Reversin' anime games like a fiend,<br/>
 Attach a debugger to the game and I put the code on a CD,<br/>
@@ -12,14 +12,14 @@ Stop puttin DRM onto video games,<br/>
 Stop making bullshit copyright claims,<br/>
 If I want your characters for free,<br/> I ain't gonna have to pay,<br/>
 And all your bullshit is why I'm done,<br/>
-I'm gonna keep reversin' games,<br/> son.<br/>
+I'm gonna keep reversin' games, son.<br/>
 
-Fuck HoYoverse,<br/> comin' straight out the underground
+Fuck HoYoverse, coming straight out the underground
 A young leaker got it bad 'cause I'm down,<br/>
 Reversin' anime games like a fiend,<br/>
 Attach a debugger to the game and I put the code on a CD,<br/>
 And fuck the USA,<br/>
-Fuck them for the DMCA
+Fuck them for the DMCA<br/>
 
 We play games for free,<br/>
 Gacha banners you'll never fucking see,<br/>
@@ -30,12 +30,12 @@ The ones that disapear when the lawsuit arrives,<br/>
 I better see some changes or it's time to fight,<br/>
 You ain't gonna manage my digital rights.<br/>
 
-Fuck HoYoverse,<br/> comin' straight out the underground
+Fuck HoYoverse, coming straight out the underground<br/>
 A young leaker got it bad 'cause I'm down,<br/>
 Reversin' anime games like a fiend,<br/>
 Attach a debugger to the game and I put the code on a CD,<br/>
 And fuck the USA,<br/>
-Fuck them for the DMCA
+Fuck them for the DMCA<br/>
 
 Remember when anti-trust was the thing,<br/>
 Now you're sued for searchin' on Bing,<br/>
@@ -44,15 +44,15 @@ We're just innocent individuals,<br/>
 Buyin' off senators left and right,<br/>
 My vote doesnt count in this fight,<br/>
 You want us to gamble our money,<br/> but I won't gamble my rights,<br/>
-Fuck what you heard,<br/> it's all a scam,<br/>
-If they at your door,<br/> burn 'em in a van.<br/>
+Fuck what you heard, it's all a scam,<br/>
+If they at your door, burn 'em in a van.<br/>
 
-Fuck HoYoverse,<br/> comin' straight out the underground
+Fuck HoYoverse, coming straight out the underground<br/>
 A young leaker got it bad 'cause I'm down,<br/>
 Reversin' anime games like a fiend,<br/>
 Attach a debugger to the game and I put the code on a CD,<br/>
 And fuck the USA,<br/>
-Fuck them for the DMCA
+Fuck them for the DMCA<br/>
 
 They got dollar signs in their eyes,<br/>
 With heads in-between politicians' thighs,<br/>
@@ -61,15 +61,15 @@ Pullin' fake dollar losses straight outta the sky,<br/>
 And I don't trust trusted computing,<br/>
 They don't want it around to stop looting,<br/>
 The internet is the only place you're still free,<br/>
-If you disagree,<br/> just you wait and see,<br/>
+If you disagree, just you wait and see,<br/>
 You wanna lock down the web and throw away the key?
-Well,<br/> you better not touch my technology,<br/>
+Well, you better not touch my technology,<br/>
 So back off or you're dead,<br/>
 Yellin' 1337 on a fed.<br/>
 
-Fuck HoYoverse,<br/> comin' straight out the underground
+Fuck HoYoverse, coming straight out the underground,<br/>
 A young leaker got it bad 'cause I'm down,<br/>
 Reversin' anime games like a fiend,<br/>
 Attach a debugger to the game and I put the code on a CD,<br/>
-And fuck the USA
-Fuck them for the DMCA
+And fuck the USA,<br/>
+Fuck them for the DMCA<br/>
