@@ -1,4 +1,4 @@
-Fuck HoYoverse, coming straight out the underground
+Fuck HoYoverse, coming straight out the underground,<br/>
 A young leaker got it bad 'cause I'm down,<br/>
 Reversin' anime games like a fiend,<br/>
 Attach a debugger to the game and I put the code on a CD,<br/>
@@ -6,15 +6,15 @@ Back all that stolen content up on DVD-ROMs,<br/>
 'Cuz my tip's been leaking since I dropped out my Mom's,<br/>
 And just because I post their OGGs,<br/>
 They got the government comin' after me,<br/>
-Instead of suin' kids,<br/> why don't you step on up,<br/>
+Instead of suin' kids, why don't you step on up,<br/>
 And release a couple games that don't completely suck,<br/>
 Stop puttin DRM onto video games,<br/>
 Stop making bullshit copyright claims,<br/>
-If I want your characters for free,<br/> I ain't gonna have to pay,<br/>
+If I want your characters for free, I ain't gonna have to pay,<br/>
 And all your bullshit is why I'm done,<br/>
 I'm gonna keep reversin' games, son.<br/>
 
-Fuck HoYoverse, coming straight out the underground
+Fuck HoYoverse, coming straight out the underground,<br/>
 A young leaker got it bad 'cause I'm down,<br/>
 Reversin' anime games like a fiend,<br/>
 Attach a debugger to the game and I put the code on a CD,<br/>
@@ -43,7 +43,7 @@ You treat us like criminals,<br/>
 We're just innocent individuals,<br/>
 Buyin' off senators left and right,<br/>
 My vote doesnt count in this fight,<br/>
-You want us to gamble our money,<br/> but I won't gamble my rights,<br/>
+You want us to gamble our money, but I won't gamble my rights,<br/>
 Fuck what you heard, it's all a scam,<br/>
 If they at your door, burn 'em in a van.<br/>
 
