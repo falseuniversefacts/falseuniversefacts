@@ -12,7 +12,7 @@ Stop puttin DRM onto video games,<br/>
 Stop making bullshit copyright claims,<br/>
 If I want your characters for free,<br/> I ain't gonna have to pay,<br/>
 And all your bullshit is why I'm done,<br/>
-I'm gonna keep reversin' games, son.<br/>
+I'm gonna keep reversin' games,<br/> son.<br/>
 
 Fuck HoYoverse, coming straight out the underground
 A young leaker got it bad 'cause I'm down,<br/>
@@ -24,7 +24,7 @@ Fuck them for the DMCA<br/>
 We play games for free,<br/>
 Gacha banners you'll never fucking see,<br/>
 Been a couple years since I seen a DMCA warning,<br/>
-Cut it out,<br/> 'cause that's mad boring,<br/>
+Cut it out, 'cause that's mad boring,<br/>
 I'ma just keep fillin' up drives,<br/>
 The ones that disapear when the lawsuit arrives,<br/>
 I better see some changes or it's time to fight,<br/>
