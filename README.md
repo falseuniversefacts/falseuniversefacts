@@ -62,7 +62,7 @@ And I don't trust trusted computing,<br/>
 They don't want it around to stop looting,<br/>
 The internet is the only place you're still free,<br/>
 If you disagree, just you wait and see,<br/>
-You wanna lock down the web and throw away the key?
+You wanna lock down the web and throw away the key?<br/>
 Well, you better not touch my technology,<br/>
 So back off or you're dead,<br/>
 Yellin' 1337 on a fed.<br/>
