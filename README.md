@@ -12,7 +12,7 @@ Stop puttin DRM onto video games,<br/>
 Stop making bullshit copyright claims,<br/>
 If I want your characters for free,<br/> I ain't gonna have to pay,<br/>
 And all your bullshit is why I'm done,<br/>
-I'm gonna keep reversin' games,<br/> son.<br/>
+I'm gonna keep reversin' games, son.<br/>
 
 Fuck HoYoverse, coming straight out the underground
 A young leaker got it bad 'cause I'm down,<br/>
